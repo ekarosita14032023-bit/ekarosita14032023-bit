@@ -43,5 +43,5 @@ Senior GIS Specialist dan Lulusan **Sarjana Geografi Universitas Indonesia (2006
 ---
 
 ### 📫 Mari Terhubung!
-* 📧 **Email:** eka.rosita@email.com
+* 📧 **Email:** ekarosita14032023@email.com
 * 💼 **LinkedIn:** https://linkedin.com
